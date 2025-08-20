@@ -14,3 +14,8 @@ The volunteer work I did over the summer was hosting the foreign kids, I got 45 
 ## My Spotify
 
 https://open.spotify.com/playlist/03arwokgqzKR00iVOzthee 
+
+Thats not all the type of music I like, but those are the ones I chose for that playlist:
+
+# h
+
