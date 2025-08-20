@@ -10,3 +10,7 @@ When the foreign students were gone or not here, I spent most of my time hanging
 The volunteer work I did over the summer was hosting the foreign kids, I got 45 hours for each one. I did this program not only because I needed to catch up on my hours, but to learn from each of them. All of them had a unique vibe to them, probably because some were older than others. One thing that they all had in common was that they all wanted to try new things, and wanted us to try a little bit of their culture. They got to be apart of some family traditions, which are just us partying until early morning, and getting together at random dates. 
 
 
+
+## My Spotify
+
+https://open.spotify.com/playlist/03arwokgqzKR00iVOzthee 
