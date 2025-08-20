@@ -44,4 +44,4 @@ Thats not all the type of music I like, but those are the ones I chose for that 
 
 ## My Image Collage
 
-![My Photo](images/photo.png)
+![Image Collage](collage.png)
