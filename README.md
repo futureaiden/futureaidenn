@@ -17,5 +17,31 @@ https://open.spotify.com/playlist/03arwokgqzKR00iVOzthee
 
 Thats not all the type of music I like, but those are the ones I chose for that playlist:
 
-# h
+**"Long Time - Intro" by Playboi Carti**
 
+```I found this song back in like 2020-2021 during covid and it changed my taste in music like crazy.``` 
+
+**""Neon Guts (feat. Pharrell Williams)" by Lil Uzi Vert**
+
+```It's simple I love Lil Uzi Vert and this is one of my favorite songs.```
+
+**"If I knew" by Bruno Mars**
+
+```Bruno mars is in my top 3 of favorite artist of all time, I've been listening to him since I was like 2-3 years old```
+
+**"In My Feelings" by Drake**
+
+```I've beening listing to Drake for along time, so of couse he's on this list.```
+
+**"That Girl" by Pharrell Williams, Snoop Dogg**
+
+```I just like this song a lot. Thats it.```
+
+**"Preoccupied" by Mac DeMarco**
+
+```Mac DeMarco is one of my favorite artist aswell, and to me this is my favorite song by him.```
+
+
+## My Image Collage
+
+![My Photo](images/photo.png)
